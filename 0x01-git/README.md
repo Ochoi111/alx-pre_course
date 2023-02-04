@@ -1,1 +1,1 @@
-I love programming and a am so intentional about it
+I love programming and i am so intentional about it
